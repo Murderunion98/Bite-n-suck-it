@@ -1,2 +1,3 @@
 # Bite-n-suck-it
-This game IS NOT FOR YOUNGER GAMER
+You can torture a little person in any way you want.
+
